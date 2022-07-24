@@ -146,7 +146,7 @@ hashtag: recepts
 
 Употребляя такой салат хотя бы два раза в неделю в качестве гарнира, Вы избавитесь от чувства тяжести в желудке и будете чувствовать себя значительно бодрее.
 
-![Микрозелень](https://mikrozelenfaq.ru/blob/main/assets/images/salat-iz-mikrozeleny.jpg)
+![Микрозелень](https://mikrozelenfaq.ru/assets/images/salat-iz-mikrozeleny.jpg)
 
 Ингредиенты:
 
