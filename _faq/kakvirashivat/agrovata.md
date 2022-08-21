@@ -9,7 +9,7 @@ hashtag: agrovata
 
 Так же на 2 см агровате микрозелень дольше хранится у покупателя в холодильнике без дополнительного полива. Стоимость агороваты на 1 см 3.5 рубля, на 2 см 4.5 рублей, рекомендую брать 2 см, как Марганец.
 
-Купить агровату можно у [https://t.me/Uralecogreen](https://t.me/Uralecogreen) с его ценами можно ознакомиться [ftp://f.9qw.ru/web/agrovata.pdf](ftp://f.9qw.ru/web/agrovata.pdf) 
+Купить агровату можно у [https://t.me/Uralecogreen](https://t.me/Uralecogreen) с его ценами можно ознакомиться [http://f.9qw.ru/web/agrovata.pdf](http://f.9qw.ru/web/agrovata.pdf) 
 
 Так же агровату можно купить у  просемена [https://t.me/Prosemena_online](https://t.me/Prosemena_online) вот их Прайс
 
