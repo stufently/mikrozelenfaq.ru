@@ -16,4 +16,6 @@ hashtag: kanalyyt
 
 Канал о микрозелени - Перейти на канал [Марганец](https://www.youtube.com/c/Марганец)
 
+### Greenlife.73
 
+Канал о микрозелени - Перейти на канал [Greenlife.73](https://www.youtube.com/channel/UCD8ZYBBt_7MPQRUOXi818tA)
