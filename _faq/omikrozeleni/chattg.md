@@ -13,3 +13,7 @@ hashtag: chattg
 * [https://t.me/myzelen](https://t.me/myzelen)
 * [https://t.me/wheatgrass_microgreen](https://t.me/wheatgrass_microgreen)
 * [https://t.me/GREEN_CHIEFF_CHAT](https://t.me/GREEN_CHIEFF_CHAT)
+* [https://t.me/microgreensrussia](https://t.me/microgreensrussia)
+* [https://t.me/microgreenflower](https://t.me/microgreenflower)
+* [https://t.me/reogenlab](https://t.me/reogenlab)
+* [https://t.me/greendok_chat](https://t.me/greendok_chat)
