@@ -1,5 +1,5 @@
 ---
-question: Где купить микрозелень?
+question: Где купить микрозелень в Новосибирске?
 ldjson: yes 
 hashtag: gdekypit
 ---
