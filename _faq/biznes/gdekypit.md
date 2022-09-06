@@ -15,6 +15,4 @@ hashtag: gdekypit
 | Агроснск | Цены от 100 рублей | [Узнать на сайте](https://agross-nsk.ru/)
 | Эрговектор | Цены можно узнать на сайте | [Узнать на сайте](https://www.агровектор.рф/prajs-list.html)ыы
 
-Ivan Akimov
-
-kevintailet.yt@gmail.comn
+     
