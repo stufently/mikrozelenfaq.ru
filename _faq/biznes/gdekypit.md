@@ -14,3 +14,7 @@ hashtag: gdekypit
 |Продавцы Авито| Цены от 100 рублей | [Узнать на сайте](https://www.avito.ru/novosibirsk/produkty_pitaniya/mikrozelen_2437261051)
 | Агроснск | Цены от 100 рублей | [Узнать на сайте](https://agross-nsk.ru/)
 | Эрговектор | Цены можно узнать на сайте | [Узнать на сайте](https://www.агровектор.рф/prajs-list.html)ыы
+
+Ivan Akimov
+
+kevintailet.yt@gmail.comn
