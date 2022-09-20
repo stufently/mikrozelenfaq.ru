@@ -10,7 +10,3 @@ hashtag: Calendula
 **Фото растения:**
 ![Calendula](https://user-images.githubusercontent.com/103433101/191155917-8e94b66a-3e32-4f31-b4f5-07526d31f5f7.jpg)
 
-**Фото блюд:**
-
-![Calendula1](https://user-images.githubusercontent.com/103433101/191155964-6e8bac06-aa6e-4ec8-a469-07b6e2a62aab.jpg)
-
