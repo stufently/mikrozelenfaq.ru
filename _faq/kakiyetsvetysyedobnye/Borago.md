@@ -14,5 +14,4 @@ hashtag: Borago
 **Фото блюд:**
 
 ![borago2](https://user-images.githubusercontent.com/103433101/191154376-a33c161b-fef1-40fd-bde0-84a6c289756a.jpg)
-![borago1](https://user-images.githubusercontent.com/103433101/191154396-6dcde793-15fe-4b5f-99ba-f12c50448800.jpg)
 
