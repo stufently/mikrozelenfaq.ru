@@ -9,9 +9,8 @@ hashtag: Borago
 
 **Фото растения:**
 
-![Borago](https://user-images.githubusercontent.com/103433101/191154259-c6f45f9d-f284-4728-989a-cf2e31621981.jpg)
+![Borago](https://user-images.githubusercontent.com/103433101/191172910-c7d08c01-e6af-435c-9d75-e0a51ddc5582.jpg)
 
 **Фото блюд:**
 
-![borago2](https://user-images.githubusercontent.com/103433101/191154376-a33c161b-fef1-40fd-bde0-84a6c289756a.jpg)
-
+![borago2](https://user-images.githubusercontent.com/103433101/191173029-d4d50e59-866d-4a87-8073-c828395da54a.jpg)
