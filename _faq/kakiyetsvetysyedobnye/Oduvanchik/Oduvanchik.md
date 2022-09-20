@@ -14,5 +14,3 @@ hashtag: Oduvanchik
 **Фото блюд:**
 
 ![kartofelnyy-salat-s-oduvanchikami](https://user-images.githubusercontent.com/103433101/191156888-0911209c-eee7-4dfb-9f7b-377cd532f7cd.jpg)
-
-![Oduvanchik1](https://user-images.githubusercontent.com/103433101/191157045-ba2ef69c-60cb-4526-888c-757d27fb2100.jpg)
