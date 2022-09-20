@@ -9,8 +9,10 @@ hashtag: Oduvanchik
 
 **Фото растения:**
 
-![oduvanchik](https://user-images.githubusercontent.com/103433101/191156853-6cefee38-afbe-4257-bd16-ff64ccb170ba.jpg)
+![oduvanchik](https://user-images.githubusercontent.com/103433101/191172608-426508dd-73b3-4776-b1f4-df624172729c.jpg)
+
 
 **Фото блюд:**
 
-![kartofelnyy-salat-s-oduvanchikami](https://user-images.githubusercontent.com/103433101/191156888-0911209c-eee7-4dfb-9f7b-377cd532f7cd.jpg)
+![Oduvanchik1](https://user-images.githubusercontent.com/103433101/191172702-fa15ef0a-ecee-4f81-901c-cb444e950282.jpg)
+
