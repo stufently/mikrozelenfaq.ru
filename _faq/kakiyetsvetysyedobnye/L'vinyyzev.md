@@ -1,7 +1,7 @@
 ---
 question: Львиный зев
 ldjson: yes 
-hashtag: L'vinyyzev
+hashtag: Lvinyyzev
 ---
 **Вкус:** с легкой кислинкой.
 
