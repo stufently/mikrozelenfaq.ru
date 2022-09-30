@@ -5,6 +5,6 @@ hashtag: phdown
 ---
 
 Так как чаще всего для пш даун делают из ортофосфорной кислоты , то проще всего купить пищевую ортофосфорную кислоту .
-В новосибирске можно ее купить в компании Полимер по 280 рублей за килограмм (https://www.td-polimer54.ru/goods/84500100-ortofosfornaya_kislota_termicheskaya_pishchevaya)[https://www.td-polimer54.ru/goods/84500100-ortofosfornaya_kislota_termicheskaya_pishchevaya]
+В новосибирске можно ее купить в компании Полимер по 280 рублей за килограмм [https://www.td-polimer54.ru/goods/84500100-ortofosfornaya_kislota_termicheskaya_pishchevaya](https://www.td-polimer54.ru/goods/84500100-ortofosfornaya_kislota_termicheskaya_pishchevaya)
 Помните это сильная 75 процентная ортофосфорная кислота, с ней надо работать в перчатках и в очках.
 Для понижения пш я рекомендую ее разбавить в небольшую емкость дистилированной водой хотя бы на пополам, чтобы было проще и безопаснее с ней работать.
