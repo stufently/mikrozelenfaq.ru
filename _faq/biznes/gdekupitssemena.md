@@ -1,5 +1,5 @@
 ---
-question: Где купить микрозелень в Новосибирске?
+question: Где купить семена для микрозелени в Новосибирске?
 ldjson: yes 
 hashtag: gdekypitsemena
 ---
