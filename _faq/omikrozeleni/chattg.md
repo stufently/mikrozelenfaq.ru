@@ -1,5 +1,5 @@
 ---
-question:  для любителей микрозелени
+question: Чаты для любителей микрозелени
 ldjson: yes 
 hashtag: chattg
 ---
