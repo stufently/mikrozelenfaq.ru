@@ -16,3 +16,4 @@ hashtag: gdekypit
 | Эрговектор | Цены можно узнать на сайте | [https://www.агровектор.рф/prajs-list.html](https://www.агровектор.рф/prajs-list.html)
 | azbuka zeleni | Цены можно узнать в Direct | [https://svoe-rodnoe.ru/fresh/farmers/11315/info](https://svoe-rodnoe.ru/fresh/farmers/11315/info) [https://instagram.com/azbuka_zeleni?igshid=YmMyMTA2M2Y=](https://instagram.com/azbuka_zeleni?igshid=YmMyMTA2M2Y=)
 ferma.aquatica | https://www.instagram.com/ferma.aquatica/
+Авито Новосибирск | https://www.avito.ru/novosibirsk/rasteniya/schavel_krovavaya_meri_mikrozelen_bazilik_2491780048
