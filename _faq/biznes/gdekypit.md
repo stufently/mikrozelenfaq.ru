@@ -10,9 +10,9 @@ hashtag: gdekypit
 
 * Питомник васхнил - от 100 до 170 рублей   [https://vashnil.ru/katalog/novosibirsk/mikrozelen/gotovaa-mikrozelen](https://vashnil.ru/katalog/novosibirsk/mikrozelen/gotovaa-mikrozelen) 
 
-* Трава Мурова - Цена за лоток микрозелени от 139 рублей.Цена за 100 грамм зелени от 150 рублей.Доставка по городу при заказе от 750 рублей. | [https://vk.com/travamurava_nsk](https://vk.com/travamurava_nsk)
+* Трава Мурова - Цена за лоток микрозелени от 139 рублей.Цена за 100 грамм зелени от 150 рублей.Доставка по городу при заказе от 750 рублей.  [https://vk.com/travamurava_nsk](https://vk.com/travamurava_nsk)
 
-* Полезные продукты для сибири - Микрозелень срез 65-80 рублей Микрозелень на корню 120 рублей | [https://sibrostok.ru/microzelen](https://sibrostok.ru/microzelen)
+* Полезные продукты для сибири - Микрозелень срез 65-80 рублей Микрозелень на корню 120 рублей  [https://sibrostok.ru/microzelen](https://sibrostok.ru/microzelen)
 
 * Агривер - Индивидуально  [https://agriver-fresh.ru/flowers/index.html](https://agriver-fresh.ru/flowers/index.html)
 
