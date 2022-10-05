@@ -14,13 +14,10 @@ hashtag: gdekypit
 
 * Полезные продукты для сибири - Микрозелень срез 65-80 рублей Микрозелень на корню 120 рублей  [https://sibrostok.ru/microzelen](https://sibrostok.ru/microzelen)
 
-* Агривер - Индивидуально  [https://agriver-fresh.ru/flowers/index.html](https://agriver-fresh.ru/flowers/index.html)
 
 * Продавцы Авито - Цены от 100 рублей  [https://www.avito.ru/novosibirsk/produkty_pitaniya/mikrozelen_2437261051](https://www.avito.ru/novosibirsk/produkty_pitaniya/mikrozelen_2437261051)
 
 * Агроснск - Цены от 100 рублей  [https://agross-nsk.ru/](https://agross-nsk.ru/)
-
-* Эрговектор - Цены можно узнать на сайте  [https://www.агровектор.рф/prajs-list.html](https://www.агровектор.рф/prajs-list.html)
 
 * azbuka zeleni - Цены можно узнать в Direct  [https://svoe-rodnoe.ru/fresh/farmers/11315/info](https://svoe-rodnoe.ru/fresh/farmers/11315/info) [https://instagram.com/azbuka_zeleni?igshid=YmMyMTA2M2Y=](https://instagram.com/azbuka_zeleni?igshid=YmMyMTA2M2Y=)
 
