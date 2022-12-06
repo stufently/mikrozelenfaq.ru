@@ -5,4 +5,4 @@ hashtag: dogovor
 ---
 Используйте готовый шаблон для предоставления услуги по выращиванию микрозелени по запросу ресторана, так как продавать саму микрозелень вы вроде как и не можете.
 
-http://f.9qw.ru/dogovor_samozanyatii.docx
+[http://f.9qw.ru/dogovor_samozanyatii.docx](http://f.9qw.ru/dogovor_samozanyatii.docx)
