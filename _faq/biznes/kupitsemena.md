@@ -26,3 +26,4 @@ hashtag: kupitsemena.md
 
 * greenchef-spb - Зелёный шеф [https://greenchef-spb.ru/](https://greenchef-spb.ru/)
 
+* prosemena - Просемена [https://prosemena.ru/](https://prosemena.ru/)
